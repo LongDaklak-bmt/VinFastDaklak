@@ -46,4 +46,4 @@
 📧 **Email:** my.chevroletcongthanh@gmail.com  
 🌐 **Website:** [www.vinfasttaynguyen.com](https://www.vinfasttaynguyen.com/)  
 
-🚀 **Khám phá ngay công nghệ xe điện tại [VinFast Daklak] (https://www.vinfasttaynguyen.com/) 
+🚀 **Khám phá ngay công nghệ xe điện tại [VinFast Daklak](https://www.vinfasttaynguyen.com/) 
